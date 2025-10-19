@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on personal projects with my Gs
 - 📫 How to reach me Dohgdoin on discord
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: twink lover
+- ⚡ Fun fact: silly
+  
 
 <!---
 JozefKovacIII/JozefKovacIII is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
